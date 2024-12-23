@@ -5,7 +5,3 @@
 <p align="center"
   
   ![](https://files.catbox.moe/ura32k.jpg)
-  
- <p align="center"
-   
-  [rentry](https://rentry.co/esper)
