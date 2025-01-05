@@ -1,10 +1,10 @@
 <p align="center"
   
-  ![](https://komarev.com/ghpvc/?username=yutanejohiel&color=000000&style=plastic&label=✦&abbreviated=true)
+  ![](https://komarev.com/ghpvc/?username=yutanejohiel&color=ff87c5&style=plastic&label=♡&abbreviated=true)
 
 <p align="center"
   
-  ![](https://files.catbox.moe/aif83g.jpg)
+  ![](https://64.media.tumblr.com/46a0b4c428b3c49608a3d022be328105/ee7e25143d4ad85a-bc/s400x600/9731b4233753cf35ba4420221c45cf10a30c9bfa.gifv)
 
   <p align="center" 
 
@@ -12,9 +12,10 @@
 
 <p align="center" 
 
-always near genshin, not the best at convos mb :P
+always in hoyo area, under a tree. 
+feel free to int! im not good at convos tho ^_^;
 
 <p align="center" 
   
-![](https://64.media.tumblr.com/754510109856df49a3067f81696449a3/d38264845c94c5f6-09/s75x75_c1/ca35413831481402020da786e1c5f4cabc332404.gifv)
+![](https://64.media.tumblr.com/6d40f310c4f349f9b75f08752bbda165/46505ae1dd62b12e-87/s100x200/968334e5d82167d97f15eef241ecfe45359eee4a.gifv)
 
