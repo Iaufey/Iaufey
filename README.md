@@ -19,3 +19,7 @@ feel free to int! im not good at convos tho ^_^;
   
 ![](https://64.media.tumblr.com/6d40f310c4f349f9b75f08752bbda165/46505ae1dd62b12e-87/s100x200/968334e5d82167d97f15eef241ecfe45359eee4a.gifv)
 
+<p align="center" 
+
+#1 biggest amy fan ever 
+
