@@ -10,6 +10,10 @@
 
 [rentry](https://rentry.co/esper)
 
+<p align="center"
+
+draw me stuff in my [strawpage](https://fuwawa.straw.page/)
+  
 <p align="center" 
 
 always in hoyo area, under a tree. 
